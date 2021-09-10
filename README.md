@@ -14,7 +14,7 @@ Random information found on the internet that i wish to share with the world.
 - [aier.org](https://www.aier.org/article/medical-journal-warns-about-maskss-potentially-devastating-consequences/)
 - [www.bmj.com](https://www.bmj.com/content/369/bmj.m1435/rr-40)
 - [aiscience.org](http://scholar.googleusercontent.com/scholar?q=cache:z12bRr88CFIJ:scholar.google.com/+health+problems+caused+by+surgical+masks+side+effect+of+prolonged+use&hl=fr&as_sdt=0,5)
-> Associated files [(aiscience.org) PDF](http://files.aiscience.org/journal/article/pdf/70570152.pdf.).
+> Associated files [(aiscience.org) PDF](http://files.aiscience.org/journal/article/pdf/70570152.pdf).
 - [jpad.com.pk](http://jpad.com.pk/index.php/jpad/article/view/1634)
 > other related files: [(proremedium.pl) PDF](http://proremedium.pl/wp-content/uploads/2021/05/Rancourt.pdf)
 
