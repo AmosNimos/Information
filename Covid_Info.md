@@ -6,7 +6,7 @@
 ![mask_art](https://cdn.pixabay.com/photo/2020/10/23/18/04/face-mask-5679507_1280.png)
 
 ## Facemasks Prolong usage potential risks
-> Prolong usage of surgical mask side effects include: hypercapnia, hypoxia, headache, dyspnea, physical exertion, MIES syndrome.
+> ⚠️ Prolong usage of surgical mask side effects include: hypercapnia, hypoxia, headache, dyspnea, physical exertion, MIES syndrome.
 - [Surgical-mask-allergens](https://www.healio.com/news/primary-care/20201119/commonly-found-allergens-exist-in-some-face-masks)
 - [clinmedjournals.org](https://clinmedjournals.org/articles/jide/journal-of-infectious-diseases-and-epidemiology-jide-6-130.php?jid=jide)
 - [Undesirable Side Effects](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8072811/) & [microplastic inhalation risk](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7773316/)
