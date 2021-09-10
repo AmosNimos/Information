@@ -10,7 +10,7 @@ Random information found on the internet that i wish to share with the world.
 > Prolong usage of surgical mask side effects include: hypercapnia, hypoxia, headache, dyspnea, physical exertion, MIES syndrome.
 - [Surgical-mask-allergens](https://www.healio.com/news/primary-care/20201119/commonly-found-allergens-exist-in-some-face-masks)
 - [clinmedjournals.org](https://clinmedjournals.org/articles/jide/journal-of-infectious-diseases-and-epidemiology-jide-6-130.php?jid=jide)
-- [ncbi.nlm.nih.gov](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8072811/)
+- [Undesirable Side Effects](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8072811/) & [microplastic inhalation risk](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7773316/)
 - [aier.org](https://www.aier.org/article/medical-journal-warns-about-maskss-potentially-devastating-consequences/)
 - [www.bmj.com](https://www.bmj.com/content/369/bmj.m1435/rr-40)
 - [aiscience.org](http://scholar.googleusercontent.com/scholar?q=cache:z12bRr88CFIJ:scholar.google.com/+health+problems+caused+by+surgical+masks+side+effect+of+prolonged+use&hl=fr&as_sdt=0,5)
