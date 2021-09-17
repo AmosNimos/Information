@@ -1,5 +1,7 @@
 # The state of Covid based paranoia 
 
+![vaccination_passport](https://www.gannett-cdn.com/presto/2021/03/19/USAT/c3d5bf8e-68f9-4a82-b135-ab264c7b7aa6-GettyImages-1303285991.jpg?auto=webp&crop=2131,1199,x1,y99&format=pjpg&width=1200)
+
 ## Vaccination-passport is the definition of __fashism__. 
 
 ---
