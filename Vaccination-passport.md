@@ -52,11 +52,20 @@ historically they never ended up being the good guys.
 This is discrimination that violate our most basic right, this is pure fascism. We should learn from history, 
 not to repeat its mistake,
 but this current situation is no better than telling a man he needs to sit at the back of a bus based on the color of his skin.
+
 The funny thing about miss Information is that most people assume that it must be everything that goes against what they already believe, instead of considering the possibility that their sources might be the one compromised.
+
+Beware of the sensorship, every information that differ from the mainstream is getting tagged as missinformation and removed from access.
+How can you claim to know anithing, if you can only see the information that confirm what you already believe to be fact. this is the blindfold of willingfull induced ignorance. if prevented you from seing and considering the atrocity of his action, a monster doing teribel thing, can only see it self, as a benevolant hero. 
+by removing the context by removing every differing view, your create this controled bias false perception of reality in which every concept can be turned on it's head, where good is bad and bad is good.
+
+mass manipulation, sencorship, and hate based discrimination, is nothing new, but if your are blinded to history, you might as well believe it is.
 
 as long as people keep thinking this way things won't improve, they will keep getting worst.
 The most dangerous type of tyranny arise gradually unnoticed. As long as they don't make change too drastic, too fast, people will endure almost anything.
 just like a frog in the water will let it self be boiled alive, as long as the water temperature rise slowly enough.
+
+The passport allows fascist politicians to claim that they are not "forcing" people to take the vaccine; they will just make people's lives a living hell if they don't.
 
 kids at school are getting prevented from going to activities if they don't have this vacination-passport. This is very similar to china scocial credit system which was just another tool of totalitarism discrimination.
 This is the unofficial way to force somoane to do somthing. this is basic scocial blackmail, do what they whant or else.
@@ -93,3 +102,6 @@ The data have been so falsified that the virus propagation might already been ov
 - [vaccine-passports-will-outlast-the-pandemi](https://www.textise.net/showText.aspx?strURL=https%253A//reason.com/2021/05/12/vaccine-passports-will-outlast-the-pandemic/)
 
 - [return-of-fascism-in-europe](https://www.textise.net/showText.aspx?strURL=https%253A//rforresistance.wordpress.com/2021/05/01/depopulation-by-injection-the-return-of-fascism-in-europe-and-agenda-2030/#content)
+
+- [vaccine-passports-are-symbols-of-creeping-authoritarianism](https://www.textise.net/showText.aspx?strURL=https%253A//www.minotdailynews.com/opinion/national-columnists/2021/04/vaccine-passports-are-symbols-of-creeping-authoritarianism/)
+
