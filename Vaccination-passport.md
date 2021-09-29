@@ -129,5 +129,4 @@ Just like it is mostly useless to argue with a religous extremiss with logic to 
 - [return-of-fascism-in-europe](https://www.textise.net/showText.aspx?strURL=https%253A//rforresistance.wordpress.com/2021/05/01/depopulation-by-injection-the-return-of-fascism-in-europe-and-agenda-2030/#content)
 
 - [vaccine-passports-are-symbols-of-creeping-authoritarianism](https://www.textise.net/showText.aspx?strURL=https%253A//www.minotdailynews.com/opinion/national-columnists/2021/04/vaccine-passports-are-symbols-of-creeping-authoritarianism/)
-- 
 
