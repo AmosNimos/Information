@@ -7,7 +7,7 @@ Random information that i wish to share with the world.
 
 ---
 - [Media Manipulation](Media.md)
-- [Surgical mask side effects](Covid_Mask_Info.md)
+- [Surgical mask side effects](Covid__Mask_Info.md)
 - [Vaccination passport](Vaccination-passport.md) 
 ---
 
