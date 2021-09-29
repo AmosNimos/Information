@@ -1,7 +1,11 @@
 # Information
 Random information found on the internet that i wish to share with the world.
 
-## General
+## Table of content
+- [Media Manipulation](Media.md)
+- [Surgical mask side effects](Covid_Mask_Info.md)
+
+### General
 - [Water Car](https://www.youtube.com/watch?v=wjeM2IBhtlc)
 
 
