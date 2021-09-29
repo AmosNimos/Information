@@ -112,6 +112,7 @@ Just like it is mostly useless to argue with a religous extremiss with logic to 
 
 
 #### Others related webpage/blogs I found on this topics:
+> (These site have not all been fully reviwed by me, i am but a humman with limited time to do these research.)
 
 - [Covid-19_Inflated_death_count?](https://www.aamc.org/news-insights/how-are-covid-19-deaths-counted-it-s-complicated)
 
@@ -128,4 +129,15 @@ Just like it is mostly useless to argue with a religous extremiss with logic to 
 - [return-of-fascism-in-europe](https://www.textise.net/showText.aspx?strURL=https%253A//rforresistance.wordpress.com/2021/05/01/depopulation-by-injection-the-return-of-fascism-in-europe-and-agenda-2030/#content)
 
 - [vaccine-passports-are-symbols-of-creeping-authoritarianism](https://www.textise.net/showText.aspx?strURL=https%253A//www.minotdailynews.com/opinion/national-columnists/2021/04/vaccine-passports-are-symbols-of-creeping-authoritarianism/)
+
+## Data bias subject
+
+https://pubmed.ncbi.nlm.nih.gov/33652582/
+
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7405980/
+
+https://hdsr.mitpress.mit.edu/pub/y9vc2u36/release/6
+
+https://sharepointmike.wordpress.com/2021/09/25/has-covid-19-reporting-caused-a-bias-in-public-opinion/
+
 
