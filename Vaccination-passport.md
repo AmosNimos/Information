@@ -105,14 +105,29 @@ They corner us in a situation where there is not much way to avoid this predicam
 
 For some reason people have blind faith that things just can’t keep getting worst like this for ever, but it historically has, and we have no indication of things getting better any time soon, people feel insulted being compared to Nazi even when the comparison if obvious, they don’t like being called fascism when they act like fascism and support a fascism state, there is misinformation about what misinformation even is, to the point some people believe the only valid information is the one provided by the traditional media the most unrealizable source there has ever been.
 
-This is a state of fear based discrimination, the result of successfull propaganda and the use of modern and traditional media as the ultimate brainwashing tool.
-When we keep redifining the definition of word, we can't ever be wrong, they keep denying what their actions actually imply.
+This is a state of fear based discrimination, the result of successful propaganda and the use of modern and traditional media as the ultimate brainwashing tool.
+When we keep redefining the definition of word, we can't ever be wrong, they keep denying what their actions actually imply.
 
-Just like it is mostly useless to argue with a religous extremiss with logic to point out the illogicallity of his belief system their is not much to gain in trying to reason people who conveince them self that the current situation is justified.
+Just like it is mostly useless to argue with a religious extremists with logic to point out the illogicality of his belief system there is not much to gain in trying to reason people who convince them self that the current situation is justified.
 
+Even with valid argument there, even when simply offering information, people panic, questioning the measure in place equivalent to questioning their faith, they feel like their entire reality is under attack. even when you simply offer factual information to them they dismiss it and make it seems like you are trying to debate them, i heard people say "I don't want to start a debate" when being presented with objective provable and proved facts, this often left me felling sick and agree since there is no way of communicating without them being on the defensive or interpreting the conversation as a form of conflict, they will of course deny this reality. And continue seeing them self as rational people even when face with their irrationality. which is even worst when they are in a position of authority.
+
+I had people dismissing the information of this repository without looking at it simply because it was not mainstream media.
+I am just a person with no authority on those topic, but i am still a person capable of doing research and use reasoning.
+There is nothing fundamentally dangerous in being expose to someone else reasoning, idea, views, as long as you can use your own to evaluate it, if you still think the information you have been presented is invalid you can questioned it and get to the bottom of it. But I guess that isn’t how things work now, it's a monopole on information a dictatorship on what if valid or invalid view of reality. Not based on evidence but based on the source, only source approved by the mainstream media are considered valid and other should be dismissed without further consideration.
+
+I had people dismissing information without looking at it under the assumption that they are already informed this is invalid reasoning since no information can be complete unless you are omnipotent, and worse your information might be bias or invalid, and simply assuming it is not, is not only pretentious it's simply unreasonable to say the least, it is the definition of being close minded.
+
+How can you truly know something if you never question and reconsider what you assume to know?
+
+We have not succeeded i vanishing religious bullshit from our society, how are we supposed to fight against a faith that is even stronger and against an even bigger disregard for reality logic and fact in favor of mainstream superstition.
+
+I don't assume to be right about anything I claim, that's how i know i could be, because i am prepared to change my mind based on logic. I just bring questioning and definition, i leave the rest to you, to make your own mind and do your own research. Please do prove me wrong, but do it with provable fact, not baseless mainstream beliefs.
+
+Not that I want it, but it has turned in a battle of faith vs fact.
 
 #### Others related webpage/blogs I found on this topics:
-> (These site have not all been fully reviwed by me, i am but a humman with limited time to do these research.)
+> (These site have not all been fully reviewed by me, i am but a human with limited time to do these research.)
 
 - [Covid-19_Inflated_death_count?](https://www.aamc.org/news-insights/how-are-covid-19-deaths-counted-it-s-complicated)
 
