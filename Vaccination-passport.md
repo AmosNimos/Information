@@ -113,6 +113,9 @@ Just like it is mostly useless to argue with a religous extremiss with logic to 
 
 
 #### Others related webpage/blogs I found on this topics:
+
+- [Covid-19_Inflated_death_count?](https://www.aamc.org/news-insights/how-are-covid-19-deaths-counted-it-s-complicated)
+
 > All converted in text only format with [textise.net](https://www.textise.net/)
 
 - [forced-vaccines-health-fascism-and-medical-apartheid](https://www.textise.net/showText.aspx?strURL=https%253A//billmuehlenberg.com/2021/06/09/forced-vaccines-health-fascism-and-medical-apartheid/#content)
@@ -126,4 +129,5 @@ Just like it is mostly useless to argue with a religous extremiss with logic to 
 - [return-of-fascism-in-europe](https://www.textise.net/showText.aspx?strURL=https%253A//rforresistance.wordpress.com/2021/05/01/depopulation-by-injection-the-return-of-fascism-in-europe-and-agenda-2030/#content)
 
 - [vaccine-passports-are-symbols-of-creeping-authoritarianism](https://www.textise.net/showText.aspx?strURL=https%253A//www.minotdailynews.com/opinion/national-columnists/2021/04/vaccine-passports-are-symbols-of-creeping-authoritarianism/)
+- 
 
