@@ -2,6 +2,8 @@
 
 The Facebook and Twitter CEOs appeared before the Senate Judiciary Committee Tuesday at a hearing entitled “Breaking the News: Censorship, Suppression, and the 2020 Election.”
 
+## Transcript
+
 [FULL COMMITTEE HEARING](https://www.judiciary.senate.gov/meetings/breaking-the-news-censorship-suppression-and-the-2020-election)
 
 [Dorsey Response]("Information/Testimony/Dorsey_Response_QFRs.pdf")
