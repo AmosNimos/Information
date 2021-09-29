@@ -127,7 +127,7 @@ I don't assume to be right about anything I claim, that's how i know i could be,
 Not that I want it, but it has turned in a battle of faith vs fact.
 
 > Advice: As soon as someone try to debate logic with faith and beliefs, don't bother arguing with them, only an idiot argue with a fool.
-> They most often assume to be right no matter reality, so leave them in their blissful ignorance, they have clearly choosen to be in complete denial, i hignly doupt you can reason with the unreasonable and delusion the delusional.
+> They most often assume to be right no matter reality, so leave them in their blissful ignorance, they have clearly choosen to be in complete denial, and i hignly doupt you can reason with the unreasonable and delusion the delusional.
 
 #### Others related webpage/blogs I found on this topics:
 > (These site have not all been fully reviewed by me, i am but a human with limited time to do these research.)
