@@ -1,8 +1,10 @@
-# 2020 Noveber 17 Hearing 
+# Senate Judiciary Committee Hearing
+
+## 2020 Noveber 17 
 
 ![Facebook-Censorship](https://i2.wp.com/www.opindia.com/wp-content/uploads/2020/08/facebook-censorship.jpg?resize=696%2C464&ssl=1)
 
-The Facebook and Twitter CEOs appeared before the Senate Judiciary Committee Tuesday at a hearing entitled “Breaking the News: Censorship, Suppression, and the 2020 Election.”
+The Facebook and Twitter CEOs appeared before the Senate Judiciary Committee at a hearing entitled “Breaking the News: Censorship, Suppression, and the 2020 Election.”
 
 ## Transcript
 
