@@ -131,6 +131,11 @@ Not that I want it, but it has turned in a battle of faith vs fact.
 
 It is sad to see that some people have already made up their mind, they have taken position and wont reconsider it.
 
+A lot of people when face with reality that is different from their pre define perception of reality, will enter a into what is called a cognitive dissonance,
+This can happen when they are face with new information that they simply are not mentally ready to consider, this can make them verry angry.
+when you realise you are arguing with a persone in that state of mind stop debating. they might even be the one turning the conversation into a debate, then it
+is pointless to continue the conversation.
+
 #### Others related webpage/blogs I found on this topics:
 > (These site have not all been fully reviewed by me, i am but a human with limited time to do these research.)
 
