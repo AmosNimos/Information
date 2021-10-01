@@ -4,6 +4,7 @@ The way most people access information has been completely monopolized and corru
 People have been condition to distrust any information not from those controlled media and consider them as false misinformation regardless of the content. 
 People use this controlled incomplete bias information to form their perception of reality, and when their perception of reality does not match with reality 
 They will reject reality and enter a state of cognitive dissonance. 
+Even those who avoid those platform have to interact at some point or another with people who does and so the propaganda keep spreading.
 Every information that does not fit the narative is hidden by the platform use by the people to share and find information.
 these organisation are the ulimate editor, they controle the the narative and band people opignion to their will.
 People are kept in a constant state of fear, fear of each other, Hypochondriasis fear of the covid-19 virus, they have been __brainwashed__ and I use this word very precisely,
