@@ -112,7 +112,7 @@ When we keep redefining the definition of word, we can't ever be wrong, they kee
 
 Just like it is mostly useless to argue with a religious extremists with logic to point out the illogicality of his belief system there is not much to gain in trying to reason people who convince them self that the current situation is justified.
 
-Even with valid argument there, even when simply offering information, people panic, questioning the measure in place equivalent to questioning their faith, they feel like their entire reality is under attack. even when you simply offer factual information to them they dismiss it and make it seems like you are trying to debate them, i heard people say "I don't want to start a debate" when being presented with objective provable and proved facts, this often left me felling sick and agree since there is no way of communicating without them being on the defensive or interpreting the conversation as a form of conflict, they will of course deny this reality. And continue seeing them self as rational people even when face with their irrationality. which is even worst when they are in a position of authority.
+Even with valid argument there, even when simply offering information, people panic, questioning the measure in place equivalent to questioning their faith, they feel like their entire reality is under attack. even when you simply offer factual information to them they dismiss it and make it seems like you are trying to debate them, i heard people say "I don't want to start a debate" when being presented with objective provable and proved facts, this often left me felling sick and agree since there is no way of communicating without them being on the defensive or interpreting the conversation as a form of conflict, they will of course deny this reality. And continue seeing them self as rational people even when face with their irrationality. Which is even worst when they are in a position of authority.
 
 I had people dismissing the information of this repository without looking at it simply because it was not mainstream media.
 I am just a person with no authority on those topic, but i am still a person capable of doing research and use reasoning.
@@ -129,14 +129,39 @@ I don't assume to be right about anything I claim, that's how i know i could be,
 Not that I want it, but it has turned in a battle of faith vs fact.
 
 > Advice: As soon as someone try to debate logic with faith and beliefs, don't bother arguing with them, only an idiot argue with a fool.
-> They most often assume to be right no matter reality, so leave them in their blissful ignorance, they have clearly choosen to be in complete denial, and i hignly doupt you can reason with the unreasonable and delusion the delusional.
+> They most often assume to be right no matter reality, so leave them in their blissful ignorance, they have clearly chosen to be in complete denial, and I highly doubt you can reason with the unreasonable and delusion the delusional.
 
-It is sad to see that some people have already made up their mind, they have taken position and wont reconsider it.
+It is sad to see that some people have already made up their mind, they have taken position and won’t reconsider it.
 
 A lot of people when face with reality that is different from their pre define perception of reality, will enter a into what is called a cognitive dissonance,
-This can happen when they are face with new information that they simply are not mentally ready to consider, this can make them verry angry.
-when you realise you are arguing with a persone in that state of mind stop debating. they might even be the one turning the conversation into a debate, then it
-is pointless to continue the conversation.
+This can happen when they are face with new information that they simply are not mentally ready to consider, this can make them very angry.
+When you realize you are arguing with a person in that state of mind stop debating. They might even be the one turning the conversation into a debate, then it
+Is pointless to continue the conversation.
+
+The big tech are now controlling how people think, controlling the information they see, and how they see it. Based on that, they can reinforce people fear, and condition their response. 
+The argument that some hypothesis on potential conspiracy are stupid, and there for every hypothesis on the topic must be equally stupid, does not sound much unbiased.
+
+I think that people are in "partial" denial, if they assume the impossibility of large scale conspiracy without even taking into consideration any rational argument.
+
+There has been multiple in fact almost innumerable historical precedent for these sorts pf conspiracy event, and this is just taking a look at those that have been uncovered.
+
+No truth can be found, if we assume to be right. 
+
+Be careful not to generalize, try to avoid being condescending with those who have different view then you.
+
+Do not fall prey to fear and hatred for one another, 
+Avoid reinforcing your belief in social media echo chamber that sorts people and opinions such as to protect them from deferring views and arguments.
+Successful propaganda is invisible, successful behavioral conditioning is invisible, successful indoctrination is invisible.
+
+To stay on topic I will conclude by stating that:
+Rich people getting richer and poorer people getting poorer during the pandemic is a coincidence so improbable that it can be deduced as not a coincidence.
+It is the same for the probability that the virus was NOT leaked/engineered from a laboratory in Wuhan, very unlikely.
+
+The efficiency of the vaccine is questionable at best and its side effect unknown and ignored.
+
+Mass surveillance WAS a conspiracy hypothesis in the USA, but now thanks in large part to Edward Snowden, we know better, and yet people still react to this topic of state mass surveillance in the same dismissive way they did before we had undeniable proof of it.
+
+Most people are easily in denial of reality they are not ready to accept, human have historically been mostly irrational and deluded in a sense of false rationality.
 
 #### Others related webpage/blogs I found on this topics:
 > (These site have not all been fully reviewed by me, i am but a human with limited time to do these research.)
