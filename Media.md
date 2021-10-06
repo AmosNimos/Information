@@ -25,3 +25,7 @@ The Facebook and Twitter CEOs appeared before the Senate Judiciary Committee at 
 
 > [Hearing clip](https://www.youtube.com/watch?v=o1MZOtKYnfM]) of Zuckerberg not being aware of...
 
+## 2021
+
+[Mental Outlaw](https://www.youtube.com/watch?v=VmtsrX-uc1I)
+
