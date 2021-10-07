@@ -16,3 +16,5 @@ They have closed the frontier to does that do not adhere to their beliefs, trapp
 The minority that did not get the vaccination identification, are threaten to lose their job, and are discriminated against in society, and cannot live normal lives, as if they were lesser being or a threat to society. Their freedom are getting ignored. This is very reminiscent of the social credit system of totalitarian china.
 Totalitarianism, Tyranny, Discrimination, Fascism, Police-state, irrationalism, are now words that describe the sad new reality.
 People sacrificed their freedom and the freedom of other, in exchange for an illusion of safety.
+
+[The spread of police state](https://www.youtube.com/watch?v=mAkCAZSq2a0)
