@@ -18,3 +18,4 @@ Totalitarianism, Tyranny, Discrimination, Fascism, Police-state, irrationalism, 
 People sacrificed their freedom and the freedom of other, in exchange for an illusion of safety.
 
 [The spread of police state](https://www.youtube.com/watch?v=mAkCAZSq2a0)
+> Those who sacrifices freedom for security end up losing both – Benjamin Franklin
