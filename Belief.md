@@ -3,10 +3,11 @@
 I will voluntarily avoid referring to specific cases in this document so that the conclusion can still be applied to religion as a whole no matter the minor irrelevant differences. 
 If you need more specific example look at what religion and religious people say, and what they do, and see for yourself how my critic will inevitably apply.
 
-
 # What this book is and is not about
 This book do not aim, to explain how some phenomenon have been proven to be wrong. Because there is already enough book and information on the specific explanations of each of those topics. The information is already there for those who
 Take the time to study and understand it.
+
+I would also like to clarify as a reminder that being victim of Indoctrination, manipulation, conditioning, and brainwashing as nothing to do with intelligence, intelligent people will find convoluted and convincing way to justify their belief. that's why people are often targeted when they are young (often before the age of reason) or when they are desperate. once a belief become a conviction, intelligence will only be use to defend that conviction, the only thing we can do, is warn people before it comes to that, and share with them the tactics use by those organization and group to recruit and manipulate people.
 
 I don't need to repeat what have already been explained clearly and his easily accessible information.
 
