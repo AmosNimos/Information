@@ -163,7 +163,8 @@ Mass surveillance WAS a conspiracy hypothesis in the USA, but now thanks in larg
 
 Most people are easily in denial of reality they are not ready to accept, human have historically been mostly irrational and deluded in a sense of false rationality.
 
-never in all human history the side of fear hate and discrimination has been in the right!
+never in all human history the side of fear, hate, intimidation discrimination has been in the right!
+never figthing against other people basic right, freedom, liberty, and choice has been right!
 
 fake-new = "new", tyranny = "new normal", discrimination = "justified resumes", freedom = "treat", science and demonstrable fact = "anti-scientific", lies = "truth" propaganda = "information", reasonable concern = "anti-vaxxer" hate = "caring"... this is the upside down Orwellian reality that is spreading around the world.
 
